@@ -1,5 +1,12 @@
-# QB INVENTORY REDESIGN
+# QB Inventory Redesign❤️
 
-- Redesigned by Ryzbe
+# INFORMATION
+- For any support or questions join our [Discord](https://discord.gg/HKu3xVA7m3)
 
-https://cdn.discordapp.com/attachments/1155308631508660245/1188581834519498963/image.png?ex=659b0c18&is=65889718&hm=4c2ec1bbe82b61eb3585da7c9d6d289297250d2aaa33e2ed2a45e6602cab953d&
+# SHOWCASE
+![General](https://cdn.discordapp.com/attachments/1177446950354821191/1187562072800755773/w123er123er.PNG?ex=6597565d&is=6584e15d&hm=f53e771fb856e31edec50c770d9752428549d3bee9aecb76a8c1c9a833677f9c&)
+
+
+# Credits
+- Ryze Roadshop
+
